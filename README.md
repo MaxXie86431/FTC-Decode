@@ -1,1 +1,1 @@
-David is *not* goat
+David is *the* goat
